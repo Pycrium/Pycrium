@@ -32,7 +32,7 @@ Here’s one of the most impactful projects I’ve built:
 
 ## 📫 Get in Touch
 - Email: [aayushpaikaray@gmail.com](aayushpaikaray@gmail.com)
-- GitHub: [github.com/yourusername](https://github.com/yourusername)
+- Canva Magazine: [Sai Chandana](https://www.canva.com/design/DAGXA4VMPCQ/kizZMjcHP2jYuODiKT8JCQ/edit)
 
 ---
 
